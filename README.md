@@ -20,3 +20,12 @@ Website : https://ivoted.us/
 What we have achieved:
 
 To be completed ..
+
+![image](https://github.com/user-attachments/assets/9beb9d69-9409-491e-bac0-f60a247cb768)
+
+![image](https://github.com/user-attachments/assets/d52ada92-7e4b-4b2f-9e83-288d648bc92f)
+
+![image](https://github.com/user-attachments/assets/988bc63d-7f0a-4e28-a855-58a3e016f66a)
+
+
+
