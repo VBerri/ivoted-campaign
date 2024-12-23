@@ -15,7 +15,7 @@ I (Sanjeev) and Tanuj worked together, We both are 10th graders, cannot vote in 
 
 https://youtu.be/dybqV53dUt0
 
-Website : https://ivoted. us/
+Website : https://ivoted.us/
 
 What we have achieved:
 
